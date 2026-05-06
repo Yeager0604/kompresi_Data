@@ -1,0 +1,1 @@
+# kompresi_Data
